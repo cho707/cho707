@@ -1,4 +1,4 @@
-
+![GitHub Views](https://komarev.com/ghpvc/?username=cho707&color=9c3324)
 
 ✧˖° ![3b8390e7](https://github.com/user-attachments/assets/0e320a0d-79d2-4b0b-9023-c99d10342d1f) ✧˖°
 
