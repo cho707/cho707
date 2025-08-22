@@ -2,7 +2,7 @@
 
 ✧˖° ![3b8390e7](https://github.com/user-attachments/assets/0e320a0d-79d2-4b0b-9023-c99d10342d1f) ✧˖°
 
-  ![strangers-from-hell-miosnz](https://github.com/user-attachments/assets/b2f4a8c0-e651-4030-bd36-6044dd12ffab) ![33](https://github.com/user-attachments/assets/5835ffc8-b58b-4aeb-805c-c07276f64726) 
+ 
 
 ╚═✬✩══╡˚✧✬✧˚╞══✩✬══╝╚═✬✩══╡˚✧✬✧˚╞══✩✬══╝
 
