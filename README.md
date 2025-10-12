@@ -6,7 +6,7 @@
 
 ╚═✬✩══╡˚✧✬✧˚╞══✩✬══╝╚═✬✩══╡˚✧✬✧˚╞══✩✬══╝
 
-   !!!!!!!!!!!!!!VIEW STRAWPAGE!!!!!!!!!!!!!!
+ 
 
  ✧˖° ![ezgif-683ef699cae4d5](https://github.com/user-attachments/assets/e97e834d-0e02-46da-8921-b1b088622e4b)  ✧˖°
 
