@@ -18,15 +18,9 @@
 
 ✦  dni under 17
 
-✦ dni proshitters
-
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧
 
-✦ c+h freely, im offtab a lot so w2i ^_^ 
-
-✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧
- 
-✦  view my strawpage for more info lalala 
+✦  view my strawpage for more info
 
 
 ✧˖°| [strawpage](https://cho707.straw.page/) |✧˖°
