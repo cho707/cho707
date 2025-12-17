@@ -13,6 +13,10 @@
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
   
  ✦ Hi im cho or towa
+ 
+ ✦ My main fandoms are Fear & Hunger Termina, Identity V, 
+
+ Slow Damage, Clinical Trial(i dont support the creator pls)and, Lacey Games
 
   ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧
 
