@@ -1,22 +1,24 @@
-![GitHub Views](https://komarev.com/ghpvc/?username=cho707&color=9c3324)
+</div> <div align="center">
 
 ✧˖° ![3b8390e7](https://github.com/user-attachments/assets/0e320a0d-79d2-4b0b-9023-c99d10342d1f) ✧˖°
+ 
+![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
+
+
+꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+
 
  
-
-╚═✬✩══╡˚✧✬✧˚╞══✩✬══╝╚═✬✩══╡˚✧✬✧˚╞══✩✬══╝
-
- 
-
-
-
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
   
- ✦ Hi im cho or towa
+ ✦ my names cho
  
- ✦ My main fandoms are Fear & Hunger Termina, Identity V, Stranger Things, Dead Plate,TADC,
+
+ ✦ my main fandoms are Fear & Hunger Termina, Identity V, Stranger Things, Dead Plate,TADC,
 
  Slow Damage, Clinical Trial(i dont support the creator pls)and, Lacey Games
+ 
+<img width="400" height="65" alt="tumblr_35264474f47dde9a0fb2752d11a1c2f3_936ef993_400" src="https://github.com/user-attachments/assets/89e4e039-de36-4f8f-a4f2-50db78e641e3" />
 
   ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧
 
