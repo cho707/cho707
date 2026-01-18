@@ -14,7 +14,7 @@
  ✦ my names cho
  
 
- ✦ my main fandoms are Fear & Hunger Termina, Identity V, Stranger Things, Dead Plate,TADC,
+ ✦ my main fandoms are Fear & Hunger Termina, Milgram, Identity V, Stranger Things,TADC,
 
  Slow Damage, Clinical Trial(i dont support the creator pls)and, Lacey Games
  
