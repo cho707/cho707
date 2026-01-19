@@ -15,6 +15,8 @@
  
  
  ✦I'm from Russia
+
+ 
  ✦ my main fandoms are Fear & Hunger Termina, Milgram, Identity V, Stranger Things,TADC,
 
  Slow Damage, Clinical Trial(i dont support the creator pls)and, Lacey Games
