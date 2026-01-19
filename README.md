@@ -11,13 +11,11 @@
  
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
   
- ✦ my names cho 
+ ✦ my names cho im russian and he/him
    
  ✦i probably wont int with u unless u do first sigh, feel free to c+h anytime though 
- 
- ✦I'm from Russia
 
- 
+
  ✦ my main fandoms are Fear & Hunger Termina, Milgram, Identity V, Stranger Things,TADC,
 
  Slow Damage, Clinical Trial(i dont support the creator pls)and, Lacey Games
