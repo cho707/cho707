@@ -11,8 +11,10 @@
  
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
   
- ✦ my names cho
+ ✦ my names cho 
  
+ 
+ ✦I'm from Russian but, I only know English cus I live in now AMURIKCAAA YEEEHAW
 
  ✦ my main fandoms are Fear & Hunger Termina, Milgram, Identity V, Stranger Things,TADC,
 
