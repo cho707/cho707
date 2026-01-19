@@ -12,7 +12,8 @@
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
   
  ✦ my names cho 
- 
+   
+ ✦i probably wont int with u unless u do first sigh, feel free to c+h anytime though 
  
  ✦I'm from Russia
 
