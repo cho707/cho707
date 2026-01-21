@@ -1,5 +1,8 @@
 </div> <div align="center">
 
+<img width="600" height="400" alt="tumblr_b23118f29785500b5f2e225b245409bd_221e2ed6_1280" src="https://github.com/user-attachments/assets/4f9cdc26-6608-4d25-aca9-a14cd3a2c1b8" />
+
+
 ✧˖° ![3b8390e7](https://github.com/user-attachments/assets/0e320a0d-79d2-4b0b-9023-c99d10342d1f) ✧˖°
  
 ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
