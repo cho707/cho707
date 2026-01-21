@@ -14,7 +14,7 @@
  
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
   
- ✦ my names cho im russian and he/him
+ ✦ my names cho im russian but, i speak fluent english
    
  ✦i probably wont int with u unless u do first sigh im awkward but, feel free to c+h anytime still
 
