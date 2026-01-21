@@ -13,7 +13,8 @@
   
  ✦ my names cho im russian and he/him
    
- ✦i probably wont int with u unless u do first sigh, feel free to c+h anytime though 
+ ✦i probably wont int with u unless u do first sigh im awkward but, feel free to c+h anytime still
+
 
 
  ✦ my main fandoms are Fear & Hunger Termina, Milgram, Identity V, Stranger Things,TADC,
