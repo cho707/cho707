@@ -50,5 +50,5 @@
 <img width="240" height="40" alt="abc5acb3" src="https://github.com/user-attachments/assets/c1ce411b-ac72-4fc9-8979-8d569dbf92af" /> 
 
 
+![scaramouche-wanderer](https://github.com/user-attachments/assets/677b8e2a-0003-4f95-954f-7abbd1ffa084)
 
-![GkKrrpKXsAANa1C](https://github.com/user-attachments/assets/bcbf46cc-48ac-4675-bf76-1c5bee45ac2a)
