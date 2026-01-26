@@ -3,6 +3,7 @@
 <img width="600" height="400" alt="tumblr_b23118f29785500b5f2e225b245409bd_221e2ed6_1280" src="https://github.com/user-attachments/assets/4f9cdc26-6608-4d25-aca9-a14cd3a2c1b8" />
 
 
+
 ✧˖° ![3b8390e7](https://github.com/user-attachments/assets/0e320a0d-79d2-4b0b-9023-c99d10342d1f) ✧˖°
  
 ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
@@ -43,12 +44,14 @@
 ![672e4ec6](https://github.com/user-attachments/assets/aa7fa193-c8e0-4206-b5a7-5906ee105100)  ![b2b30df5](https://github.com/user-attachments/assets/23dd74b7-92d8-4faf-88bf-cb440614e2db) <img width="99" height="56" alt="e3224aed" src="https://github.com/user-attachments/assets/bfdb24fb-df26-4864-9407-c46ed98b6f5f" />
 <img width="99" height="56" alt="521e7bc8" src="https://github.com/user-attachments/assets/c75071c7-df35-4568-af35-a6499e1a2b59" />
 
-
-
-
-  
 <img width="240" height="40" alt="abc5acb3" src="https://github.com/user-attachments/assets/c1ce411b-ac72-4fc9-8979-8d569dbf92af" /> 
 
 
-![scaramouche-wanderer](https://github.com/user-attachments/assets/677b8e2a-0003-4f95-954f-7abbd1ffa084)
+
+
+  ![_com apple Pasteboard PLFDWF](https://github.com/user-attachments/assets/d479ccad-62a8-4359-8221-b112f87f7d4e)
+
+
+
+
 
