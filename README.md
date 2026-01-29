@@ -1,6 +1,5 @@
 </div> <div align="center">
 
-<img width="600" height="400" alt="tumblr_b23118f29785500b5f2e225b245409bd_221e2ed6_1280" src="https://github.com/user-attachments/assets/4f9cdc26-6608-4d25-aca9-a14cd3a2c1b8" />
 
 
 
