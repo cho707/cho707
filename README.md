@@ -39,7 +39,7 @@
 ✦  view my strawpage for more info
 
 
-![scaramouche](https://github.com/user-attachments/assets/9aac90a3-87e8-4cf4-9eb9-93c2a209b36f)✧˖°| [strawpage](https://cho707.straw.page/) |✧˖°
+![scaramouche](https://github.com/user-attachments/assets/9aac90a3-87e8-4cf4-9eb9-93c2a209b36f)✧˖°| [strawpage](https://(https://cho7070.straw.page/)/) |✧˖°
 
 <img width="99" height="56" alt="d320362a" src="https://github.com/user-attachments/assets/cf257b10-604c-469a-8943-bde342468045" /> <img width="99" height="56" alt="d26817f6" src="https://github.com/user-attachments/assets/d872651b-3796-40f9-b9d2-c366f8a12c95" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/388d10a5-5258-4642-91c6-d791fa852544" />
  <img width="99" height="56" alt="d9e49228" src="https://github.com/user-attachments/assets/7bddd3ea-de64-4522-a102-2f42d2270b50" /> 
