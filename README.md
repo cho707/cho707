@@ -8,7 +8,8 @@
 ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
 
 
-꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+꧁⎝ <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/bdd72964-9d5b-4f07-814b-4c2f4ca199c9" />
+ ⎠꧂
 
 
  
@@ -39,21 +40,25 @@
 ✦  view my strawpage for more info
 
 
-![scaramouche](https://github.com/user-attachments/assets/9aac90a3-87e8-4cf4-9eb9-93c2a209b36f)✧˖°| 
 
-<img width="99" height="56" alt="d320362a" src="https://github.com/user-attachments/assets/cf257b10-604c-469a-8943-bde342468045" /> <img width="99" height="56" alt="d26817f6" src="https://github.com/user-attachments/assets/d872651b-3796-40f9-b9d2-c366f8a12c95" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/388d10a5-5258-4642-91c6-d791fa852544" />
- <img width="99" height="56" alt="d9e49228" src="https://github.com/user-attachments/assets/7bddd3ea-de64-4522-a102-2f42d2270b50" /> 
+<img width="99" height="56" alt="d320362a" src="https://github.com/user-attachments/assets/cf257b10-604c-469a-8943-bde342468045" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99bed540-0a64-4863-9139-28e7b7ac58de" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ff783d2d-62b9-470b-bcee-3cd43b1dee51" />
 
-![672e4ec6](https://github.com/user-attachments/assets/aa7fa193-c8e0-4206-b5a7-5906ee105100)  ![b2b30df5](https://github.com/user-attachments/assets/23dd74b7-92d8-4faf-88bf-cb440614e2db) <img width="99" height="56" alt="e3224aed" src="https://github.com/user-attachments/assets/bfdb24fb-df26-4864-9407-c46ed98b6f5f" />
-<img width="99" height="56" alt="521e7bc8" src="https://github.com/user-attachments/assets/c75071c7-df35-4568-af35-a6499e1a2b59" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/24c30dcd-4638-4b98-ac82-69d67dfd37fa" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/abe3e946-1974-40df-84a9-69136f33d0c4" /> <img width="97" height="57" alt="image" src="https://github.com/user-attachments/assets/426cdb28-8daa-4f0a-962e-f3e765e9d6bb" />
 
-<img width="240" height="40" alt="abc5acb3" src="https://github.com/user-attachments/assets/c1ce411b-ac72-4fc9-8979-8d569dbf92af" /> 
+
+
+
+
+
+
 
 
 
 
  
-![scara-scaramouche](https://github.com/user-attachments/assets/900bdd14-7150-4f7c-838e-45e773f7ad48)
+
+ 
+
 
 
 
