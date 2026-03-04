@@ -15,25 +15,25 @@
  
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
   
- ✦ my names cho im russian but, i speak fluent english
+ ✦ im russian but, i speak fluent english
    
- ✦i probably wont int with u unless u do first sigh im awkward but, feel free to c+h anytime still
+ ✦i probably wont int with u unless u do first but, feel free to int or c+h anytime 
 
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
 
 
 
 
- ✦ my main fandoms are Fear & Hunger Termina, Milgram, Identity V, genshin ,cry of fear,
+ ✦ my main fandoms are Fear & Hunger Termina, Hannibal, Milgram, Identity V, Genshin ,Cry of fear,
 
- Slow Damage, Clinical Trial(i dont support the creator pls)and, Lacey Games
+ Slow Damage, Clinical Trial and, Lacey Games
  
 <img width="400" height="65" alt="tumblr_35264474f47dde9a0fb2752d11a1c2f3_936ef993_400" src="https://github.com/user-attachments/assets/89e4e039-de36-4f8f-a4f2-50db78e641e3" />
 
   ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧
 
 
-✦  dni under 17
+✦  dni under 17 ⚠
 
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧
 
