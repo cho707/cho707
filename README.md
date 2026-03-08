@@ -3,7 +3,8 @@
 
 
 
-✧˖° ![3b8390e7](https://github.com/user-attachments/assets/0e320a0d-79d2-4b0b-9023-c99d10342d1f) ✧˖°
+✧˖° <img width="797" height="165" alt="image" src="https://github.com/user-attachments/assets/9ad14977-4fd1-4a9a-aedc-43172cf5a4c5" />
+ ✧˖°
  
 ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
 
@@ -28,12 +29,15 @@
 
  Slow Damage, Clinical Trial and, Lacey Games
  
-<img width="400" height="65" alt="tumblr_35264474f47dde9a0fb2752d11a1c2f3_936ef993_400" src="https://github.com/user-attachments/assets/89e4e039-de36-4f8f-a4f2-50db78e641e3" />
+<img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" />
 
   ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧
 
 
-✦  dni under 17 ⚠
+✦  dni under 17 
+
+<img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/a0b50899-9636-4bde-b9ae-15b950757fa4" />
+
 
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧
 
@@ -46,6 +50,8 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/24c30dcd-4638-4b98-ac82-69d67dfd37fa" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/5e7e627d-1ca6-409e-a371-f3629bc26ebc" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/973e6f8f-0458-42fd-ba76-bec8c9f96f4d" />
 
 
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5bced9a9-d55d-4bd1-b896-38afefd7d17e" />
 
 
 
