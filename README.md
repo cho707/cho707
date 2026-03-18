@@ -16,7 +16,7 @@
  
 ✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆⋅⋆⋄✧⋄✧✧⋄⋆⋅⋆⋄✧⋄⋆
   
- ✦ im russian but, i speak fluent english
+ ✦ im russian but, i do speak english fluently 
    
  ✦i probably wont int with u unless u do first but, feel free to int or c+h anytime 
 
