@@ -26,7 +26,7 @@
 
 
 
- ✦ my main fandoms are Fear & Hunger Termina, Hannibal, COF, Identity V, Genshin, TADC, INCOG inc,
+ ✦ my main fandoms are Fear & Hunger Termina, albertsstuff, COF, Identity V, Genshin, TADC, INCOG inc,
 
  Slow Damage, Clinical Trial and, Lacey Games
 
