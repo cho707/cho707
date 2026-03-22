@@ -26,9 +26,9 @@
 
 
 
- ✦ my main fandoms are Fear & Hunger Termina, albertsstuff, COF, Identity V, Genshin, TADC, INCOG inc,
+ ✦ my main fandoms are Fear & Hunger Termina, albertsstuff, COF, Identity V, Genshin, TADC, INCOG inc, Blood, Flesh & Concrete,
 
- Slow Damage, Clinical Trial and, Lacey Games
+ Slow Damage, Clinical Trial and, Lacey Games ANDDD more
 
 
 <img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" />
