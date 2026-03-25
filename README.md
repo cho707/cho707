@@ -40,21 +40,22 @@
 <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/a0b50899-9636-4bde-b9ae-15b950757fa4" />
 
 
-ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
-
 ✦  view my strawpage for more info
 
 
 
 <img width="99" height="56" alt="d320362a" src="https://github.com/user-attachments/assets/cf257b10-604c-469a-8943-bde342468045" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99bed540-0a64-4863-9139-28e7b7ac58de" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ff783d2d-62b9-470b-bcee-3cd43b1dee51" />
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/24c30dcd-4638-4b98-ac82-69d67dfd37fa" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/5e7e627d-1ca6-409e-a371-f3629bc26ebc" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/973e6f8f-0458-42fd-ba76-bec8c9f96f4d" />
-
-ཐི ྐ❤︎ ཋྀ
-
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5bced9a9-d55d-4bd1-b896-38afefd7d17e" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/24c30dcd-4638-4b98-ac82-69d67dfd37fa" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/5e7e627d-1ca6-409e-a371-f3629bc26ebc" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/973e6f8f-0458-42fd-ba76-bec8c9f96f4d" /><img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/f6c459d6-dcfe-4f26-91f0-aa26d88d3091" />
 
 
+ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـཐི ྐ❤︎ ཋྀﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
+
+<img width="499" height="311" alt="image" src="https://github.com/user-attachments/assets/1e58d942-4a50-4cb2-9209-89428bca2f6e" />
+
+ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
+
+<img width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/41ec5d69-ffc1-4621-b65c-fa8b4a6c4d75" />
 
 
 
