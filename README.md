@@ -51,13 +51,13 @@
 
 ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـཐི ྐ❤︎ ཋྀﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
-<img width="499" height="311" alt="image" src="https://github.com/user-attachments/assets/1e58d942-4a50-4cb2-9209-89428bca2f6e" />
-
-ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
-
-<img width="180" height="180" alt="image" src="https://github.com/user-attachments/assets/41ec5d69-ffc1-4621-b65c-fa8b4a6c4d75" />
 
 
+
+
+
+
+![tumblr_n8syyjBPoC1rt6u7do1_500](https://github.com/user-attachments/assets/474bb371-0c81-4dd3-8dc9-95202a0b492a)
 
 
 
