@@ -36,7 +36,9 @@
   ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
 ✦  dni under 17 
-✦i am disabled if u call me any sort of name refering to that such as slow, sped etc, i will avoid u and i dont care for a apology 
+
+✦i am disabled if u call me any sort of name refering to that such as 
+slow, sped etc, i will avoid u and i dont care for a apology 
 
 <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/a0b50899-9636-4bde-b9ae-15b950757fa4" />
 
