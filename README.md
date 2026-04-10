@@ -45,7 +45,6 @@ slow, sped, tard etc, i will avoid u and i dont care for a apology
 
 ✦  view my strawpage for more info
 
-<img width="396" height="454" alt="image" src="https://github.com/user-attachments/assets/217c0414-3a7f-4125-971b-d983f0e19bf4" />
 
 
 <img width="99" height="56" alt="d320362a" src="https://github.com/user-attachments/assets/cf257b10-604c-469a-8943-bde342468045" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99bed540-0a64-4863-9139-28e7b7ac58de" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ff783d2d-62b9-470b-bcee-3cd43b1dee51" /><img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/22e21b82-05f5-487b-acb6-a7e12c3a96bb" />
