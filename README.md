@@ -31,7 +31,7 @@
  Slow Damage, Clinical Trial and, Lacey Games andd much more
 
 
-<img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="209" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" />
+<img width="109" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="109" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="109" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" />
 
   ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
@@ -47,10 +47,16 @@ slow, sped, tard etc, i will avoid u and i dont care for a apology
 
 
 
-<img width="99" height="56" alt="d320362a" src="https://github.com/user-attachments/assets/cf257b10-604c-469a-8943-bde342468045" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99bed540-0a64-4863-9139-28e7b7ac58de" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ff783d2d-62b9-470b-bcee-3cd43b1dee51" /><img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/22e21b82-05f5-487b-acb6-a7e12c3a96bb" />
+<img width="99" height="56" alt="d320362a" src="https://github.com/user-attachments/assets/cf257b10-604c-469a-8943-bde342468045" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/99bed540-0a64-4863-9139-28e7b7ac58de" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ff783d2d-62b9-470b-bcee-3cd43b1dee51" /><img width="101" height="57" alt="tumblr_2f0fbd87bd70f2954122dc8c99cb6e7b_997ddba3_250" src="https://github.com/user-attachments/assets/c0990f3d-9ae2-4533-a431-35768c6e6a42" />
 
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/24c30dcd-4638-4b98-ac82-69d67dfd37fa" /> <img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/5e7e627d-1ca6-409e-a371-f3629bc26ebc" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/973e6f8f-0458-42fd-ba76-bec8c9f96f4d" /><img width="100" height="57" alt="image" src="https://github.com/user-attachments/assets/f6c459d6-dcfe-4f26-91f0-aa26d88d3091" />
+
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/e566882c-39db-47c5-8078-f60ccfa9bf32" />![tumblr_b51f3c977946e9aa98cd32554ebcf4d6_49e75710_100](https://github.com/user-attachments/assets/15c222d4-6bc7-4e93-903a-d0eeca3c471e) ![tumblr_67e43a7ec1cdf9df343fd4bfe6e70565_c215804a_100](https://github.com/user-attachments/assets/c999d555-330c-4db1-90e9-fc1ad7a7c4c0) <img width="99" height="56" alt="tumblr_268630ea5a9ab2ba8835df99c4a59c5e_3f032093_100" src="https://github.com/user-attachments/assets/2fb9cbe5-9aea-4af2-b337-99383044fcc6" />
+
+
+
+
+
 
 
 ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـཐི ྐ❤︎ ཋྀﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
@@ -60,8 +66,6 @@ slow, sped, tard etc, i will avoid u and i dont care for a apology
 
 
 
-
-![tumblr_n8syyjBPoC1rt6u7do1_500](https://github.com/user-attachments/assets/474bb371-0c81-4dd3-8dc9-95202a0b492a)
 
 
 
