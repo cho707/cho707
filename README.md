@@ -37,9 +37,6 @@
 
 ✦  dni under 17 
 
-✦i am disabled if u call me any sort of name refering to that such as 
-
-slow, sped, tard etc, i will avoid u and i dont care for a apology 
 
 ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ــﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
