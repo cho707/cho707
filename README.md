@@ -9,8 +9,7 @@
 ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
 
 
-꧁⎝ <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/31c87822-40af-4e7c-8cbe-f3007a35f22d" />
- ⎠꧂
+꧁⎝   <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/31c87822-40af-4e7c-8cbe-f3007a35f22d" />   ⎠꧂
 
 
 
@@ -31,7 +30,7 @@
  Slow Damage, Clinical Trial and, Lacey Games andd much more
 
 
-<img width="109" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="109" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" /><img width="109" height="121" alt="image" src="https://github.com/user-attachments/assets/a8ad2335-19f5-4eed-8734-b684060cad4a" />
+
 
   ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
