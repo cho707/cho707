@@ -20,7 +20,7 @@
    
  ✦i probably wont int with u unless u do first but, feel free to int or c+h anytime 
  
- ✦im not tcc 
+ ✦im not tcc, i dont condone people who idolize real perps.
  
 ཐི ྐ❤︎ ཋྀ
 
