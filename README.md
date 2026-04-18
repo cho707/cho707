@@ -20,6 +20,8 @@
    
  ✦i probably wont int with u unless u do first but, feel free to int or c+h anytime 
  
+ ✦im not tcc 
+ 
 ཐི ྐ❤︎ ཋྀ
 
 
