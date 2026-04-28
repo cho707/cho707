@@ -9,7 +9,7 @@
 ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
 
 
-꧁⎝   <img width="70" height="70" alt="image" src="https://github.com/user-attachments/assets/31c87822-40af-4e7c-8cbe-f3007a35f22d" />   ⎠꧂
+꧁   ꧂
 
 
 
