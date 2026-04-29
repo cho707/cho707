@@ -41,11 +41,9 @@
 
 ✦  view my strawpage for more info
 
-꧁ <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=055dk1i57nzojwcbkt33e95l9&cover_image=false&theme=default&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color_cover=true&bar_color=ffffff">
-  </a>
-</p>
+꧁
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=055dk1i57nzojwcbkt33e95l9&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
 <img width="620" height="255" alt="punpun" src="https://github.com/user-attachments/assets/18cc8c89-a40b-49fe-8a08-7040fec92414" />
 
