@@ -9,11 +9,6 @@
 ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
 
 
-꧁ <p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=055dk1i57nzojwcbkt33e95l9&cover_image=false&theme=default&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color_cover=true&bar_color=ffffff">
-  </a>
-</p>
 
 
 
@@ -45,6 +40,12 @@
 ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ــﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
 ✦  view my strawpage for more info
+
+꧁ <p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=055dk1i57nzojwcbkt33e95l9&cover_image=false&theme=default&show_offline=true&background_color=000000&interchange=true&profanity=false&bar_color_cover=true&bar_color=ffffff">
+  </a>
+</p>
 
 <img width="620" height="255" alt="punpun" src="https://github.com/user-attachments/assets/18cc8c89-a40b-49fe-8a08-7040fec92414" />
 
