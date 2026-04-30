@@ -25,7 +25,7 @@
 
 
 
- ✦ my main fandoms are Fear & Hunger Termina, ZD, COF, Identity V, Blood, Flesh & Concrete,
+ ✦ my main fandoms are Fear & Hunger Termina, Zero Day , COF, Identity V, Blood, Flesh & Concrete,
 
  Slow Damage, Clinical Trial and, Lacey Games andd much more
 
