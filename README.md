@@ -6,7 +6,7 @@
 ✧˖° <img width="797" height="165" alt="image" src="https://github.com/user-attachments/assets/9ad14977-4fd1-4a9a-aedc-43172cf5a4c5" />
  ✧˖°
  
-![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)
+꧁  ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)   ꧂
 
 
 
@@ -25,9 +25,11 @@
 
 
 
- ✦ my main fandoms are Fear & Hunger Termina, Zero Day , COF, Identity V, Blood, Flesh & Concrete,
-
- Slow Damage, Clinical Trial and, Lacey Games andd much more
+ ✦ my main fandoms are Fear & Hunger Termina, Zero Day , COF, 
+ 
+ Identity V, Blood, Flesh & Concrete,Slow Damage, Clinical Trial and, 
+ 
+ Lacey Games andd much more
 
 
 
