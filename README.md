@@ -12,24 +12,29 @@
 
 
 
+
+
  ﮩ٨ـﮩﮩ٨ـ♡ﮩﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
-  
- ✦ im russian but, i do speak english fluently 
+ 
    
- 
- ✦im not tcc, i dont condone people who idolize real perps.
- 
+  ✦ im russian but, i do speak english fluently 
+   
+ ✦im not tcc, i don't condone people who idolize real perps.
+
+✦  dni under 16
+
 ཐི ྐ❤︎ ཋྀ
 
 
-  ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
-
-✦  dni under 16
 
 
 ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ــﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
-✦  view my strawpage for more info
+✦  view my strawpage
+
+for more info
+
+
 
 ꧁[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=055dk1i57nzojwcbkt33e95l9&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
