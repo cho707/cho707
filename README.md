@@ -16,20 +16,10 @@
   
  ✦ im russian but, i do speak english fluently 
    
- ✦i probably wont int with u unless u do first but, feel free to int or c+h anytime 
  
  ✦im not tcc, i dont condone people who idolize real perps.
  
 ཐི ྐ❤︎ ཋྀ
-
-
-
-
- ✦ my main fandoms are Fear & Hunger Termina, Zero Day , COF, 
- 
- Identity V, Blood, Flesh & Concrete,Slow Damage and more 
-
-
 
 
   ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
