@@ -11,7 +11,7 @@
 
 
 
-
+<img width="60" height="60" alt="tumblr_5de5e350e070369defff97d02a2a33a9_39683c29_75" src="https://github.com/user-attachments/assets/b0578719-66d3-4336-b25d-1203c1b60d6f" />
 
 
  ﮩ٨ـﮩﮩ٨ـ♡ﮩﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
@@ -33,6 +33,12 @@
 ✦  view my strawpage
 
 for more info
+
+
+
+
+
+<img width="60" height="60" alt="tumblr_0af5e43961bc6fd9cfa35599c15c451b_413dc24f_75" src="https://github.com/user-attachments/assets/c908055b-5e61-42d2-9747-70770bc2c8e9" />
 
 
 
