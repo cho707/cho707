@@ -3,7 +3,7 @@
 
 
 
-✧˖° <img width="797" height="165" alt="image" src="https://github.com/user-attachments/assets/9ad14977-4fd1-4a9a-aedc-43172cf5a4c5" />
+✧˖° <img width="557" height="145" alt="image" src="https://github.com/user-attachments/assets/9ad14977-4fd1-4a9a-aedc-43172cf5a4c5" />
  ✧˖°
  
 ꧁  ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=☠)   ꧂
@@ -38,7 +38,7 @@ for more info
 
 
 
-<img width="60" height="60" alt="tumblr_0af5e43961bc6fd9cfa35599c15c451b_413dc24f_75" src="https://github.com/user-attachments/assets/c908055b-5e61-42d2-9747-70770bc2c8e9" />
+
 
 
 
