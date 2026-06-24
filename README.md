@@ -71,7 +71,14 @@
 ⋆༺𓆩 [straw](https://cho7070.straw.page/) ☠︎︎ [ata](cho7070.atabook.org) 𓆪༻⋆
 
 
+<img width="150" height="20" alt="IMG_2022" src="https://github.com/user-attachments/assets/34f962fc-5479-4a52-a0da-32d4e51d237b" />
+
 ꧁[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=055dk1i57nzojwcbkt33e95l9&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+
+
+
+
 
 
 <img width="620" height="255" alt="punpun" src="https://github.com/user-attachments/assets/18cc8c89-a40b-49fe-8a08-7040fec92414" />
