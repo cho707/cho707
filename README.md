@@ -44,6 +44,10 @@
  𖦏slow damage
 
  𖦏MLP creepypasta 
+
+ 𖦏EVERYTHING DEPRIVED
+
+ 𖦏ranfren
  
  𖦏ongezellig 
   
