@@ -78,11 +78,8 @@
 
 
 
+<img width="657" height="281" alt="ivantill-alien-stage" src="https://github.com/user-attachments/assets/8a11d0d0-7611-4c73-b9aa-3923bcbd6633" />
 
-
-
-
-<img width="620" height="255" alt="punpun" src="https://github.com/user-attachments/assets/18cc8c89-a40b-49fe-8a08-7040fec92414" />
 
 
 
