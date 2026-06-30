@@ -70,6 +70,9 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
   <details>
 <summary> 𖤐‎ 𝑩𝒀𝑰 </summary>
+
+   𖤐‎ ‎ ‎ im 19 yrs old
+ 
  𖤐‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ i do casually make sh, suicidal, and sexual jokes so if 
    
    that bothers you let me know or dont interact 
