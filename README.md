@@ -25,18 +25,22 @@
 
 
  
-    
- 𖤐‎ ‎  𝗡​𝗢​𝗧​ ​𝗧​𝗖​𝗖​
+   ​
 
 
 
   𖤐‎ ‎  please 𝗜𝗡𝗧 if you like these fandoms
   
- 𖦏cry of fear
 
- 𖦏 alien stage
+ 𖦏milgram
+
+ 𖦏alien stage
+
+ 𖦏daybreak 2
+
+ 𖦏cry of fear
  
- 𖦏zero day
+ 𖦏zero day( 𝗡​𝗢​𝗧​ ​𝗧​𝗖​𝗖)
  
  𖦏fear & hunger 
  
