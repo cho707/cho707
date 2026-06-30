@@ -56,7 +56,9 @@
 <summary> 𖤐‎ 𝘿𝙉𝙄 </summary>
  𖤐‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  racist, ableist, anti semitic,
   
-  homophobic, transphobic,‎ ‎ ‎ ‎ ‎ ‎  BASIC DNI IDK
+  homophobic, transphobic,‎ ‎ ‎nazis, facist,
+  
+  pro-isreal, maga  ‎ ‎ ‎  BASIC DNI IDK
 ‎ 
   
 ‎‎ 𖤐‎ ‎  if you're religious,‎ ‎ ‎ don't push it‎ on me
