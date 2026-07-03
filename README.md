@@ -8,7 +8,7 @@
 
  
  
- ꧁  ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=b3b7c6&amp;style=flat&amp;label=𖥠)   ꧂
+ ꧁  ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=c03d30&amp;style=flat&amp;label=𖥠)   ꧂
 
 
 <img width="150" height="20" alt="IMG_2022" src="https://github.com/user-attachments/assets/34f962fc-5479-4a52-a0da-32d4e51d237b" />
