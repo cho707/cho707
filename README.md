@@ -3,7 +3,7 @@
 
 
 
- <img width="657" height="145" alt="image" src="https://github.com/user-attachments/assets/9ad14977-4fd1-4a9a-aedc-43172cf5a4c5" />
+<img width="657" height="145" alt="tumblr_4447b47396399e39a25a0e5a32246406_e1f9355c_250" src="https://github.com/user-attachments/assets/dc4c9f73-e0d3-4d25-87c4-9298284c741e" />
 
 
  
@@ -114,14 +114,6 @@
 
 
 
-
-
-
-
-
-
-
-ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـཐི ྐ❤︎ ཋྀﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ
 
 
 
