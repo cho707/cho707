@@ -27,7 +27,7 @@
   pro-isreal, maga  ‎ ‎ ‎  BASIC DNI IDK
 ‎ 
   
-‎‎ 𖤐‎ ‎  if you're religious,‎ ‎ ‎ don't push it‎ on me
+‎‎ 𖤐‎ ‎  if you're religious,‎ ‎ ‎ don't push it‎ on me im antitheist
   
  𖤐‎ ‎  𝗨𝗡𝗗𝗘𝗥 𝟭𝟲 
  
