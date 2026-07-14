@@ -20,7 +20,7 @@
 
 𝙏𝙒 𝙁𝙊𝙍 𝙁𝙇𝘼𝙎𝙃𝙄𝙉𝙂 𝙇𝙄𝙂𝙃𝙏𝙎 𝙊𝙉 𝘼𝙏𝘼!!!!
 
-⋆༺𓆩 [straw](https://cho7070.straw.page/) ☠︎︎ [ata](cho7070.atabook.org) 𓆪༻⋆
+⋆༺𓆩 [straw](https://cho7070.straw.page/) ☠︎︎ [ata](https://cho7070.atabook.org/) 𓆪༻⋆
 
 
 
