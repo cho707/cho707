@@ -23,7 +23,8 @@
 ⋆༺𓆩 [straw](https://cho7070.straw.page/) ☠︎︎ [ata](https://cho7070.atabook.org/) 𓆪༻⋆
 
 
-$\color{#902b08}{thank you}$ @pt-of-awesomeness
+$\color{#902b08}{thank you}$ [@pt-of-awesomeness](https://github.com/pt-of-awesomeness)
+
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=055dk1i57nzojwcbkt33e95l9&cover_image=true&theme=natemoo-re&show_offline=true&background_color=000000&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
