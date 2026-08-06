@@ -23,7 +23,7 @@
 ⋆༺𓆩 [straw](https://cho7070.straw.page/) ☠︎︎ [ata](https://cho7070.atabook.org/) 𓆪༻⋆
 
 
-$\color{#902b08}{thank you}$ [@pt-of-awesomeness](https://github.com/pt-of-awesomeness)
+$\color{#902b08}{thanksss}$ 💕 [@pt-of-awesomeness](https://github.com/pt-of-awesomeness)
 
 
 
