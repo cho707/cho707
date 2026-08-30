@@ -35,8 +35,7 @@
 
 
 
-<img width="2000" height="1125" alt="522625eefd5186897a0548cfbff6a1b3a253869f" src="https://github.com/user-attachments/assets/e911fe42-9769-4fd4-9211-e7c185dfbbdd" />
-
+<img width="1730" height="700" alt="tumblr_389e292c8b3cf13c1ea9d5f49d2cdfcf_3a622dbb_500" src="https://github.com/user-attachments/assets/c450a895-ebdf-4e50-ae55-4e5e16325a37" />
 
 
 
