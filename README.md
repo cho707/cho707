@@ -2,7 +2,6 @@
 
 
 
-<img width="1730" height="289" alt="ezgif-26c947043740d22e" src="https://github.com/user-attachments/assets/eb86e804-01af-4989-9ce3-a229dc667d4d" />
 
 
 
