@@ -15,7 +15,7 @@
  ꧁  ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=4b587d&amp;style=flat&amp;label=𖥠)   ꧂
 
 
-<img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/ada65b45-a23d-4e7b-bbeb-64616ca11aa1" /> 
+[<img width="99" height="56" alt="stamp (4)" src="https://github.com/user-attachments/assets/ada65b45-a23d-4e7b-bbeb-64616ca11aa1" />](https://cho7070.straw.page/)
 <img width="99" height="56" alt="stamp (5)" src="https://github.com/user-attachments/assets/5e5e1687-636a-47ca-9e10-f6479890d585" />
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
