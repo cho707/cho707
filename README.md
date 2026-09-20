@@ -15,7 +15,9 @@
 
 
 
+[strawpage](https://cho7070.straw.page/)
 
+<img width="130" height="81" alt="image" src="https://github.com/user-attachments/assets/56f50f6a-6169-4034-bc2c-b760d796533b" />
 
 
 
