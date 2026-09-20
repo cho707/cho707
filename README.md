@@ -13,11 +13,10 @@
  
    ![GitHub Views](https://komarev.com/ghpvc/?username=cho707&amp;color=fc0303&amp;style=flat&amp;label=𖥠)   
 
+ <img width="90" height="61" alt="tumblr_2b13d677b120b345324097e041e874df_f9fb3143_250" src="https://github.com/user-attachments/assets/ba4fec54-9e65-4726-8414-94ee899263a5" />
 
+[strawpage](https://cho7070.straw.page/)  
 
-[strawpage](https://cho7070.straw.page/)
-
-<img width="130" height="81" alt="image" src="https://github.com/user-attachments/assets/56f50f6a-6169-4034-bc2c-b760d796533b" />
 
 
 
