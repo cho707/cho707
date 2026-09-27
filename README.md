@@ -15,7 +15,7 @@
 
  <img width="90" height="61" alt="tumblr_2b13d677b120b345324097e041e874df_f9fb3143_250" src="https://github.com/user-attachments/assets/ba4fec54-9e65-4726-8414-94ee899263a5" />
 
-[strawpage](https://cho7070.straw.page/)  
+
 
 
 
