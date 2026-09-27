@@ -30,7 +30,7 @@
 
 
 
-<img width="760" height="252" alt="akira-motomi-tnc-keisuke" src="https://github.com/user-attachments/assets/de6c5fb5-ffcf-4d66-b754-bed08ca528ff" />
+<img width="660" height="352" alt="akira-motomi-tnc-keisuke" src="https://github.com/user-attachments/assets/de6c5fb5-ffcf-4d66-b754-bed08ca528ff" />
 
 
  
