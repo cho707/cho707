@@ -33,7 +33,8 @@ $\color{#eac9b5}{ཐི ྐ𖤐 ཋྀ}$‎ ‎ [straw](https://cho7070.straw.pa
 
 
 
-<img width="480" height="332" alt="tumblr_pdaftfLxXw1tbr79o_500" src="https://github.com/user-attachments/assets/35d7b716-fce1-40fa-afab-750a25c74a6c" />
+<img width="320" height="173" alt="ezgif-863a6a87b4688532" src="https://github.com/user-attachments/assets/4b58c4d6-2938-43d4-b7c8-894ba1883c5d" />
+
 
 
 
