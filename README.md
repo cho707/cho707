@@ -33,7 +33,8 @@ $\color{#eac9b5}{ཐི ྐ𖤐 ཋྀ}$‎ ‎ [straw](https://cho7070.straw.pa
 
 
 
-<img width="660" height="352" alt="akira-motomi-tnc-keisuke" src="https://github.com/user-attachments/assets/de6c5fb5-ffcf-4d66-b754-bed08ca528ff" />
+<img width="320" height="222" alt="xYivlL" src="https://github.com/user-attachments/assets/863eecb1-28f8-4089-80d8-d87cc59f1ee4" />
+
 
 
  
