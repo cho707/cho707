@@ -53,7 +53,7 @@ $\color{#aa88ff}{ཐི ྐ𖤐 ཋྀ}$‎ ‎ [straw](https://cho7070.straw.pa
 
 
 
-<img width="700" height="213" alt="tumblr_31e7e7ae69dfd823b10a6be7e3d64b54_d16dfba6_500" src="https://github.com/user-attachments/assets/10bee54c-1f16-42ec-8ed5-7ab163992455" />
+<img width="800" height="213" alt="tumblr_31e7e7ae69dfd823b10a6be7e3d64b54_d16dfba6_500" src="https://github.com/user-attachments/assets/10bee54c-1f16-42ec-8ed5-7ab163992455" />
 
 
 
